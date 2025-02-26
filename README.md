@@ -1,7 +1,7 @@
 ## About me
 
-Hi there, this is Skyler! : ) 樂天
+Hi there, this is Sebastian! > <
 
-- 🔭 I’m currently working on Web development 
+- 🔭 I’m currently working on Data Structure and Algorithm
 - 🌱 I’m currently learning Computer Science 
 - 😄 Pronouns: him/his
