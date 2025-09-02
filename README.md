@@ -1,3 +1,3 @@
 ## About me
 
-Hi there.
+Hi there. 🐡 🐟 🪼 🐠 🦈 🐳 🐋
