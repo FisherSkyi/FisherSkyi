@@ -1,3 +1,3 @@
 ## About me
 
-Hi there. 🐡 🐟 🪼 🐠 🦈 🐳 🐋
+a student.
